@@ -2,7 +2,7 @@
 
 ## 🚀 About Me  
 
-🎓 I'm Théo de Morais, a **Master’s student in Engineering** specializing in **Electronics, Computer Science, and AI**.  
+🎓 I'm Théo de Morais, a **Master’s student in Engineering** specializing in **Electronics, Computer Science, and AI,4**.  
 
 ---
 
